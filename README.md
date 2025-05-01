@@ -1,2 +1,1 @@
-# Website-
-I will make a shopping center website where I will provide clothes mobile watches and much more
+Front End developer | UI Designer | Hrm | Logo Design | Online advertising | adobe Photoshop | Canva | Website Building | MySQL | Linux | C++ | C| cloud application development | Software Project Management
